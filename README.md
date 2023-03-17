@@ -1,2 +1,2 @@
-# Celoo Ganteng Anjay
+# Celoo Anjay
 -no bacot kids
